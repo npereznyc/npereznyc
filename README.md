@@ -13,8 +13,10 @@ My tech stack includes: <br>
 My hobbies include...
 
 🧘‍♀️ Yoga <br>
+🏋️‍♀️ Fitness <br>
 💁‍♀️ Skincare <br>
 💅 Nailcare <br>
+🎶 Music festivals <br>
 🌏 Traveling the world
 
 
