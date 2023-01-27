@@ -22,5 +22,5 @@ My hobbies include...
 
 Learn more at...
 
-natalieperez.netlify.app/
+natalieperez.netlify.app/ <br/>
 linkedin.com/in/natalie-perez-nyc/
